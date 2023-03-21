@@ -1,0 +1,1 @@
+# We did Exercise 3 on this Day

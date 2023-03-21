@@ -1,0 +1,1 @@
+# We did the solution of Exercise 2 in this day
